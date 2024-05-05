@@ -1,1 +1,1 @@
-aqui link de you tube de 2 minutos del ejercicio
+ahttps://studio.youtube.com/video/GqvxPIFfAig/edit
