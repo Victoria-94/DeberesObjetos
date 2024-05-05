@@ -1,3 +1,2 @@
-https://studio.youtube.com/video/C48Mub8aO-E/edit
-
-https://studio.youtube.com/video/CxsqwfWjjqY/edit 
+https://youtu.be/CxsqwfWjjqY
+https://youtu.be/C48Mub8aO-E
